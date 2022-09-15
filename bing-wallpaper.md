@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-09-16 | [Mural by Betsy Casañas in Buffalo, New York (© Tom Loonan)](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_UHD.jpg) 
+
 2022-09-14 | [Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg) 
 
 2022-09-13 | [Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_UHD.jpg) 
